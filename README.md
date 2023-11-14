@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SaveChris
-- 👀 I’m interested in ETS markets, CO_2 emissions, Renewable energies
+- 👀 I’m interested in ETS markets, CO2 emissions, Renewable energies
 - 🌱 I’m currently learning new metodological methods to apply to my interest markets
 - 📫 c.salvagnin@unibs.it
 
